@@ -1,3 +1,4 @@
+
 <p align="center">
 <img src="https://files.catbox.moe/nwruf0.png" width="35%"/>
 
@@ -20,6 +21,8 @@ $\color{#797979}{\text{·}}$
 <a href="https://www.tiktok.com/@_tinyberrie?_r=1&_t=ZS-91juKk4tQmt">04</a>
 $\color{#797979}{\text{·}}$
 <a href="https://open.spotify.com/user/lr84idom80wy078cq0qy8iwzv?si=B4h3V_D8SWa4P4ixpmahJg&nd=1&dlsi=02efa1da461b4890">05</a>
+$\color{#797979}{\text{·}}$
+<a href="https://boxd.it/inwbp">06</a>
   
 
 <p align="center">
