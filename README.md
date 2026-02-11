@@ -52,6 +52,5 @@ $\color{#c5c5c5}{\text{╰────────── · · · ୨୧ · · �
 <img src="https://files.catbox.moe/u6wpy4.webp" width="35%"/>
   
 <p align="center">
-$\color{#b50000}{\text{"We're gonna win, aren't}}$
-<a href="https://github.com/sleepyshelly">we</a>
+$\color{#b50000}{\text{"We're gonna win, aren't we}}$
 $\color{#b50000}{\text{...?"}}$ <br>
