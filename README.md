@@ -8,7 +8,7 @@ $\color{#b50000}{\text{Like I'm pounding my heart with a hammer.}}$ <br>
 
 <p align="center">
 $\color{#c5c5c5}{\text{╭────────── · · · ୨୧ · · · ──────────╮}}$ <br>
-$\color{#797979}{\text{Genderfluid · she/he · ENTP 7w8 · 20 y.o}}$ <br>
+$\color{#797979}{\text{Genderfluid · she/he · ENTP 7w8 738 · 20 y.o}}$ <br>
 $\color{#797979}{\text{Biochemistry student and zoology enthusiast}}$ <br> 
   
 <p align="center">
