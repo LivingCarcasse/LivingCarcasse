@@ -1,10 +1,10 @@
 
 <p align="center">
-<img src="https://files.catbox.moe/nwruf0.png" width="35%"/>
+<img src="https://files.catbox.moe/ohrdk5.png" width=50% />
 
 <p align="center">
-$\color{#b50000}{\text{With each press of the button, my heart crumbles.}}$ <br>
-$\color{#b50000}{\text{Like I'm pounding my heart with a hammer.}}$ <br>
+$\color{#c0598c}{\text{We are the tasmanians devils.}}$ <br>
+$\color{#c0598c}{\text{¡¡¡PLEASE FEED US!!!}}$ <br>
 
 <p align="center">
 $\color{#c5c5c5}{\text{╭────────── · · · ୨୧ · · · ──────────╮}}$ <br>
