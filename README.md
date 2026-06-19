@@ -8,7 +8,7 @@ $\color{#c0598c}{\text{¡¡¡PLEASE FEED US!!!}}$ <br>
 
 <p align="center">
 $\color{#c5c5c5}{\text{╭────────── · · · ୨୧ · · · ──────────╮}}$ <br>
-$\color{#797979}{\text{Genderfluid · she/he · ENTP 7w8 sp7-so3-sp8 · 20 y.o}}$ <br>
+$\color{#797979}{\text{Genderfluid · she/he · ENTP 7w8 sp738 · 20 y.o}}$ <br>
 $\color{#797979}{\text{Biochemistry student and zoology enthusiast}}$ <br> 
   
 <p align="center">
